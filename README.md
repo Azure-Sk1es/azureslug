@@ -3,10 +3,10 @@
  
 (^.^ )  WOKE NONSENSE: She/They/It  Pansexual Transfem
 
-|     |   You're probably here from ponytown hiii i'm usually survivor rainworld,,
+|ﾠﾠﾠﾠ|   You're probably here from ponytown hiii i'm usually survivor rainworld,,
 
-|     |\__A  yay aya yayy yyayy
+|ﾠﾠﾠﾠ|\__A  yay aya yayy yyayy
 
-v--v ----/  I like rainworld if you couldn't tell
+v---v ----/  I like rainworld if you couldn't tell
 
 ---------- I like graphic design and art i like to play and drawwwww
